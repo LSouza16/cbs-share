@@ -4,5 +4,5 @@ How to make oatmeal
 * Pour in a bowl
 * add milk
 * microwave
-* add berries and anything else
+* add berries, brown sugar, and anything else
 * Done!
